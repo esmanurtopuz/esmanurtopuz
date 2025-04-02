@@ -1,4 +1,4 @@
-### <div align="center">Hello, I'm Esma Nur Topuz 💜💜💜</div>  
+### <div align="center">Hello, I'm Esma Nur Topuz 💜💜</div>  
   
 
 <br/>  
